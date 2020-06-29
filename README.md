@@ -1,1 +1,0 @@
-# Beden-Kitle-ndeksi
